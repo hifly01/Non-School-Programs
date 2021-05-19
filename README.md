@@ -1,2 +1,2 @@
 # Non-School-Programs
-Some Progams outside of school
+Some Progams I have done outside of school
